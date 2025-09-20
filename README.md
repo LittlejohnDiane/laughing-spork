@@ -1,1 +1,1 @@
-# laughing-spork
+# laughing-spork-duo
